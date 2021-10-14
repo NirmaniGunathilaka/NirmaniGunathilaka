@@ -1,9 +1,5 @@
 ### Hi there 👋
 
-
-Here are some ideas to get you started:
-
-.
 - 📫 How to reach me: [**Linkedln**](https://www.linkedin.com/in/nirmanigunathilaka/)
 
 
